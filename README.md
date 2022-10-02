@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @andreafarrelly
-- 👀 I’m interested in design, tech and photography.
+- 👀 I’m interested in technology, photography and design.
 - 🌱 I’m currently learning about Creative Digital Media & UX.
 - 💞️ I’m looking to collaborate on Coding Projects.
 - 📫 How to reach me: IG @andreafarrelly
